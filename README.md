@@ -5,5 +5,10 @@
 
 - Estudante do Francisco Pereira de Souza Filho
 - Quero fazer facudade de arquietetura
-- Apaixonado por arte
-- curso do word
+- Apaixonada por artes
+- amo musica
+- ja fiz balé
+- teatro
+- curso do exel
+- 
+  
